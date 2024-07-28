@@ -8,5 +8,5 @@ Sou Camila Moresco
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
 
-![]()![image](https://github.com/user-attachments/assets/d1bc9c96-b176-4943-b240-f1776c6421b4)
+![](https://media1.tenor.com/m/0wkGHfzn2FoAAAAC/shine-text-share-the-flip-side.gif) 
 
